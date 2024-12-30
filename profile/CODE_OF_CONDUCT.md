@@ -18,5 +18,5 @@
 - Report any inappropriate behavior to a moderator. If you see someone breaking these rules or behaving in a way that is unacceptable, do not hesitate to report their behavior to a moderator.
 - Follow all Discord rules and guidelines. If you are unsure of what is allowed, ask a moderator or refer to Discord's terms of service.
 
-*By following these guidelines, you can help create a positive and inclusive environment for the BlackRel Community.*
+*By following these guidelines, you can help create a positive and inclusive environment for Tech Mom Collective.*
 
